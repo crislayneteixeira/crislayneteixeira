@@ -1,0 +1,5 @@
+- 👋 Olá, meu nome é @crislayneteixeira
+- 👀 Estou interessada em recrutar novos Jedi's para trabalhar conosco no Comeia
+- 🌱 Atualmente estou buscando profissionais que queiram se desenvolver.
+- 💞️ Estamos procurando colaborar com impactos sociais e tranformar onde estamos
+- 📫 Como chegar até mim: https://wa.me/message/4HGLKTELD7IEB1
